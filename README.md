@@ -1,5 +1,5 @@
 I am student KHAI 
-![](https://upload.wikimedia.org/wikipedia/ru/thumb/e/e8/%D0%AD%D0%BC%D0%B1%D0%BB%D0%B5%D0%BC%D0%B0_%D0%A5%D0%90%D0%98.png/320px-%D0%AD%D0%BC%D0%B1%D0%BB%D0%B5%D0%BC%D0%B0_%D0%A5%D0%90%D0%98.png) 
+![](https://sun9-2.userapi.com/impg/1VDKvuaMT-Dj12fSSSij0G-WAoE3J3Fwbn5hVQ/cj99ufrTLg4.jpg?size=55x30&quality=96&sign=641f46c87c30b39be8d150433c988183&type=album) 
 
 Follow me:
 
